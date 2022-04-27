@@ -1,0 +1,5 @@
+- Hi, I’m @Mihie7
+- I’m interested in walking and communication 
+- I’m currently learning of python programming
+- I look forward to working with promising developers and successful people
+- My contact email 89256787681@mail.ru
